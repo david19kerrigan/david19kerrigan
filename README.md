@@ -1,4 +1,4 @@
-Certified 60 IQ individual
+Comrade I wrote 50,000 lines of code but the comissar did not give me the cheese
 
 <!--
 **david19kerrigan/david19kerrigan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
