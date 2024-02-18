@@ -1,4 +1,4 @@
-i tried double clicking the .py file but nothing happens
+Certified 60 IQ individual
 
 <!--
 **david19kerrigan/david19kerrigan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
