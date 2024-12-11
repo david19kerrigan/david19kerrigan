@@ -1,4 +1,4 @@
-i am epic linux minimalist
+linux minimalist & highly swagged individual
 
 <!--
 **david19kerrigan/david19kerrigan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
